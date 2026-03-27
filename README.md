@@ -1,0 +1,1 @@
+# Rivals_nopatch-v0.10
